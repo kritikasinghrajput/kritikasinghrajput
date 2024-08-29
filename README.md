@@ -1,0 +1,1 @@
+Hi i am Kritika singh, pursuing b.tech in computer science engineering with speciallisation in AIML. Currently i am living in Ghaziabad. I am looking forward to learn more about my feild and present many crative ideas to the world.
